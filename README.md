@@ -1,0 +1,1 @@
+# s-zgecten_gecirdim_sadece_otolabel_kodu_ile
