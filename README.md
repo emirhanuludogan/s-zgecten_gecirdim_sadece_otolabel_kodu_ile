@@ -1,1 +1,3 @@
-# s-zgecten_gecirdim_sadece_otolabel_kodu_ile
+drive linlindeki etiketlenen görselleri oto labele atan diğer yolo kodu ile süzgeçten geçirdim AMA MANUEL OLARAK AYIRMADIM 
+
+
